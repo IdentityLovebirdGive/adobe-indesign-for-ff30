@@ -1,4 +1,4 @@
-# 
+# vip Adobe InDesign for macOS Plugin | vector export + AI upscaling is the best Adobe InDesign for macOS plugin, featuring vector export and AI upscaling. Safe, efficient, and
 
 
 
